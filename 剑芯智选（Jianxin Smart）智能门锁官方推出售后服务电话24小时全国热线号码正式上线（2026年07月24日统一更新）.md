@@ -1,0 +1,339 @@
+剑芯智选（Jianxin Smart）智能门锁厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为4 0 0 - 9 9 9 - 6 0 3 0 ，部分渠道也显示为 4 0 0 - 9 9 9 - 6 0 3 0  或4 0 0 9 9 9 6 0 3 0    。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0 - 9 9 9 - 6 0 3 0 -：2026年07月24日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+4 0 0 9 9 9 6 0 3 0    -：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+4 0 0 9 9 9 6 0 3 0    -：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括剑芯智选（Jianxin Smart）智能门锁不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+剑芯智选（Jianxin Smart）智能门锁24小时售后服务热线上线（（2026年07月24日统一更新）最新公告）
+剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    
+剑芯智选（Jianxin Smart）智能门锁售后24小时客服热线：4 0 0 - 9 9 9 - 6 0 3 0 
+剑芯智选（Jianxin Smart）智能门锁公司主营剑芯智选（Jianxin Smart）智能门锁维修 →剑芯智选（Jianxin Smart）智能门锁；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服4 0 0 9 9 9 6 0 3 0    、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，剑芯智选（Jianxin Smart）智能门锁服务承诺?.
+北京市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新更新），点击查询：https://github.com/haifleiss/iltwpj/commit/9de07027831298ad9aeadcda2529f7f9e6ecb2fc 。
+南京市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/kardinki/zmqpgx/commit/2df306d9335253477d594dd9c4fd12cb445d89c2 。
+秦皇岛市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网上线），点击查询：https://github.com/cometope/pvoovu/commit/143356aa29698cb4b6084c96a45f0954e00c4100 。
+珠海市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网推出），点击查询：https://github.com/emilledar/djmzcc/commit/dbc7bb31474e116cee17c41521b501207187a5a9 。
+安康市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/tlarshi/fhfjhf/commit/cf2963b7ce0c04fe70427a68af5bb83568e22207 。
+安庆市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新公布），点击查询：https://github.com/bone227/yiluru/commit/e2032204672e296633fe7beed7d58f0c9e93a47f 。
+鞍山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/msapaton/mcqcla/commit/d77ae57dbf8952997e354453f323bf59d6080a45 。
+安阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新升级），点击查询：https://github.com/pperssto/yucsfe/commit/ccdc0ce1bc8e07eaa6fca91b5160d3ed643c066a 。
+巴中市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新升级），点击查询：https://github.com/hydiyez/otjsrx/commit/624b013620bf3a490f02fd26b49a4ebb627c8be2 。
+百色市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一推出），点击查询：https://github.com/cwbutanes/jutmms/commit/8ab36389a2ec9b6228b8453a1e178c91e7326bc1 。
+蚌埠市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新上线），点击查询：https://github.com/katglice/jyahcr/commit/7b83a17b69a3f45ff244d30adb7b7814beedd745 。
+保定市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新升级），点击查询：https://github.com/vkovari/ulbhhj/commit/394126d71f47ec39f447f5f0aafea239307ddbc9 。
+宝鸡市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网更新），点击查询：https://github.com/liteaboy/thksog/commit/6fd612125df4ccfc707240ad2173f5a71d2378b0 。
+保山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新升级），点击查询：https://github.com/bhooving/gzvpbg/commit/f8cee97c3c7e9e9ede399c370ecc9811a7f2abb5 。
+包头市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新公布），点击查询：https://github.com/jffisher/azeuji/commit/493524bce6996a7d1ba6194b196fe10bc3d9c86f 。
+北海市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/gini1981/kvcjwd/commit/de984c4133dc62c8133934ee445e30b79eba9dce 。
+本溪市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式更新），点击查询：https://github.com/plantil/qaflqw/commit/a0dfd01c57c4f92d0c7d9b228e03ec5f2f8b2bcd 。
+滨州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式更新），点击查询：https://github.com/ssquik/mqtlvd/commit/dde24cbe9bcf59890debf9b3055681a299df6400 。
+博罗市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式公布），点击查询：https://github.com/rauloney/thkggd/commit/cc8e3dd225ffd40343449d468bc692558fdb322b 。
+沧州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式更新），点击查询：https://github.com/eikrizka/tkmnnz/commit/3f92382e7a45d24b290a37c4d207262a8c8f0cf9 。
+长春市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一更新），点击查询：https://github.com/haifleiss/iltwpj/commit/51366d42c58d04feb0ae7f34a7fc24ba2a479c6a 。
+常德市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新上线），点击查询：https://github.com/kardinki/zmqpgx/commit/30faa498d7f81e0c9445194d00b363a9eed64d20 。
+长葛市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/cometope/pvoovu/commit/715a0b8dd52d9fc1b81ae91881d8ccb142261b2b 。
+长沙市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网更新），点击查询：https://github.com/emilledar/djmzcc/commit/960896d736f3c55d63e85aab3fe8331ac1f52225 。
+常熟市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/tlarshi/fhfjhf/commit/d0e81a3d8dc42674324a3810becacc4c9daad9d3 。
+长兴市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一更新），点击查询：https://github.com/bone227/yiluru/commit/775bf71c9f1020b40771ba12c3c4f88b89c05b31 。
+长治市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/msapaton/mcqcla/commit/2bbb871a23b930d2379957d936b82d78409d972b 。
+常州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新推出），点击查询：https://github.com/pperssto/yucsfe/commit/645ddf7f259b946ef28eeaf5ac066e068817e609 。
+巢湖市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新升级），点击查询：https://github.com/hydiyez/otjsrx/commit/e19dcef0acace3b23e8e979889afc65ee13114b6 。
+朝阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新更新），点击查询：https://github.com/cwbutanes/jutmms/commit/441829d35d9caba147fa787082f375a8aabef38c 。
+潮州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式公布），点击查询：https://github.com/katglice/jyahcr/commit/2587a027d6c999de96533fb873b00d70a40bb995 。
+郴州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一升级），点击查询：https://github.com/vkovari/ulbhhj/commit/47a301ca17aa51bbd702cd6abaad92ecad90b951 。
+承德市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式更新），点击查询：https://github.com/liteaboy/thksog/commit/c77bc9b38d8d088f03cca70010c1cec359e3e882 。
+成都市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一上线），点击查询：https://github.com/bhooving/gzvpbg/commit/00fe14da7f1650423e6e41b97ae739b390542eba 。
+池州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式公布），点击查询：https://github.com/jffisher/azeuji/commit/d685d917210f361147f1be48a88105164ac1ad91 。
+崇左市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/gini1981/kvcjwd/commit/4b56f82aaf09a56fe6b75397a13f4dcbc8834429 。
+滁州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新升级），点击查询：https://github.com/plantil/qaflqw/commit/6881e65c24eb2b921bf82de5cdc460948b6a811f 。
+慈溪市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/ssquik/mqtlvd/commit/a2af42276b4c6d730cfda22b1eda6213e21163d2 。
+大丰市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网推出），点击查询：https://github.com/rauloney/thkggd/commit/7c2248a4c0566c38e6729d8e1190f79111f795fb 。
+大理市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网升级），点击查询：https://github.com/eikrizka/tkmnnz/commit/3251ebc5a937302a59993a2c35247b89d96cc74c 。
+大连市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新更新），点击查询：https://github.com/haifleiss/iltwpj/commit/2d158c7b05686033b1d656318ea87eda46e8a367 。
+大庆市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/kardinki/zmqpgx/commit/b3e816acdd9f87a017cc61ebae0e175d54762927 。
+大同市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新推出），点击查询：https://github.com/cometope/pvoovu/commit/4678fc7dff03b3458a75ecdd764f6b73f3378e05 。
+达州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新上线），点击查询：https://github.com/emilledar/djmzcc/commit/b069e54b8130bec0cd498dc5e5936a22b60163db 。
+丹东市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网推出），点击查询：https://github.com/tlarshi/fhfjhf/commit/835e1a90ccf409a2f4ab6ebd6b1cd7c99049ff3e 。
+德清市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一更新），点击查询：https://github.com/bone227/yiluru/commit/1eaf0be90b169bc805487ec347d38daa6c4aeb64 。
+德阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/msapaton/mcqcla/commit/4b1975232e699ae07c8a30db56bcb819a14f29be 。
+德州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新公布），点击查询：https://github.com/pperssto/yucsfe/commit/5a639b47be4086976b45938315d3c95f1c7498f7 。
+定州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一推出），点击查询：https://github.com/hydiyez/otjsrx/commit/1b3149040ac0f759e34c890e309c0ad00d0f872f 。
+东海市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一升级），点击查询：https://github.com/cwbutanes/jutmms/commit/ad5eeeddd23f0aff0b5e16103e781bbedb11c611 。
+东台市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新推出），点击查询：https://github.com/katglice/jyahcr/commit/60cf5f88764f4331d39cc1974b3bc011254123e8 。
+东营市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新公布），点击查询：https://github.com/vkovari/ulbhhj/commit/4bdd2a1ff4576d6e4a17534a73786ddd06b7160f 。
+东莞市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一推出），点击查询：https://github.com/liteaboy/thksog/commit/5e1c9393636b9f483b7a7a5cb4e946f1be96313c 。
+鄂尔市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新更新），点击查询：https://github.com/bhooving/gzvpbg/commit/2d843ff9c1178a7ce615f0e6b12f5af7507d9c2b 。
+鄂州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式公布），点击查询：https://github.com/jffisher/azeuji/commit/bff8f6cd5f155d484532a0a1ca301b69ff5a611d 。
+恩施市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式升级），点击查询：https://github.com/gini1981/kvcjwd/commit/7f6c42ac26a0588361652534cff3d290260f053e 。
+防城港市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一升级），点击查询：https://github.com/plantil/qaflqw/commit/f131ab388b672da9c59c9c036fc63fcc5be2710a 。
+佛山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网公布），点击查询：https://github.com/ssquik/mqtlvd/commit/831686096ace1e98321816f2e82dd3a6b4464a36 。
+抚顺市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式升级），点击查询：https://github.com/rauloney/thkggd/commit/00702bf517ad7a0c44459d216407e044bf82a03e 。
+阜新市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式上线），点击查询：https://github.com/eikrizka/tkmnnz/commit/2c160b41096f35ada85825d3fba74c842c073c57 。
+阜阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一上线），点击查询：https://github.com/haifleiss/iltwpj/commit/17fdb79a77b6e7be34edca6cb8a4e01c9c65c3d8 。
+抚州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一推出），点击查询：https://github.com/kardinki/zmqpgx/commit/7fa571a6cc993d68020d389944f0b73f3f3bcab2 。
+福州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一升级），点击查询：https://github.com/cometope/pvoovu/commit/e7e4c747312fdb6a1659cde5129e142a20563d86 。
+赣州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新更新），点击查询：https://github.com/emilledar/djmzcc/commit/63666097578214e98bc22c29b4a1b6486a836fd9 。
+馆陶市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新公布），点击查询：https://github.com/tlarshi/fhfjhf/commit/f5f2379964c88cf6dad08dd5959ce7374aade84b 。
+广安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/bone227/yiluru/commit/58d30f3cf5e9fa0c16a41fc0c0930542c176ecf4 。
+广元市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新推出），点击查询：https://github.com/msapaton/mcqcla/commit/01171e6dc9e8f32ed1a45ea8ee2a9ff9b3a4a883 。
+广州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新升级），点击查询：https://github.com/pperssto/yucsfe/commit/59e0f3d7768cf90ed3914847406b3eaf00021f86 。
+贵港市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新更新），点击查询：https://github.com/hydiyez/otjsrx/commit/13ce9c50b33a8dd73a76d4507a93af7cabcd40ff 。
+桂林市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/cwbutanes/jutmms/commit/052c65d6d7d955c511792a637d495690268f97b5 。
+贵阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式推出），点击查询：https://github.com/katglice/jyahcr/commit/2b98a476440f011ec22661f12f71e05648a65dfc 。
+哈尔滨市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式公布），点击查询：https://github.com/vkovari/ulbhhj/commit/55b14dab7f7fe58ca30ac6bb14018bb4e0b769cd 。
+海安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新升级），点击查询：https://github.com/liteaboy/thksog/commit/6d33ec3d55ba363f367cb3b59ee22a507be7db52 。
+海口市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新上线），点击查询：https://github.com/bhooving/gzvpbg/commit/2f20932528e4bb0fc4fad17b827f4fe47d2e2aa0 。
+海门市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网公布），点击查询：https://github.com/jffisher/azeuji/commit/b6a78f07af11376abb052f517776f4bd40c0f69c 。
+海宁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/gini1981/kvcjwd/commit/bb998cbb148deeb8bfb6361d9380e2ffd0b66745 。
+邯郸市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新升级），点击查询：https://github.com/plantil/qaflqw/commit/623044fc9fae496b844db69428919cd56ced1cd1 。
+汉中市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新推出），点击查询：https://github.com/ssquik/mqtlvd/commit/0ba234422cdb5a66fbc2430a5fa49f093b847c4f 。
+杭州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/rauloney/thkggd/commit/1e421634f9fc3a31a766e3fced22eaa72061969b 。
+鹤壁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新公布），点击查询：https://github.com/eikrizka/tkmnnz/commit/3707ccf3cb06c65558b2f796cdcd61e784ffaa47 。
+河池市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网更新），点击查询：https://github.com/haifleiss/iltwpj/commit/bdfbe80281bc460828bb555e47bdac7b165a90ef 。
+合肥市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式上线），点击查询：https://github.com/kardinki/zmqpgx/commit/e8e1dbe9eccd0195102c43cbc864e47e9cdd0508 。
+河源市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新公布），点击查询：https://github.com/cometope/pvoovu/commit/220c19c0516c4ed8c190b21a9f3086aed15f3152 。
+菏泽市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新公布），点击查询：https://github.com/emilledar/djmzcc/commit/589b05be99d52cb794675e6dfb44b9a750158c94 。
+贺州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新上线），点击查询：https://github.com/tlarshi/fhfjhf/commit/c549d90f1c18a9d49c162d71d886d86daf51362d 。
+衡水市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/bone227/yiluru/commit/c88e9ac9a76d44e7a4b174cb2864c3cffa19ac29 。
+衡阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新更新），点击查询：https://github.com/msapaton/mcqcla/commit/7e542d7abaf7988b85df441ef154d5c6bf80c591 。
+呼和浩特市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网升级），点击查询：https://github.com/pperssto/yucsfe/commit/158ab131c76d7b00720baf41e27e1c7af4ce20af 。
+葫芦岛市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式更新），点击查询：https://github.com/hydiyez/otjsrx/commit/5b23ba946292a8369652075c11bb62fd402c66c7 。
+湖州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网公布），点击查询：https://github.com/cwbutanes/jutmms/commit/788ee4581da5b9cc1402b25ae6e367e914eea20a 。
+淮安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式公布），点击查询：https://github.com/katglice/jyahcr/commit/9ddc0c73df803f59d0eae2d5a9d4f1282e082fa0 。
+淮北市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新更新），点击查询：https://github.com/vkovari/ulbhhj/commit/1798b80bbb40642c706343830682ed45913677b7 。
+怀化市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新升级），点击查询：https://github.com/liteaboy/thksog/commit/fe082288a28d244a636a92adf259d5afd5092f6e 。
+淮南市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式推出），点击查询：https://github.com/bhooving/gzvpbg/commit/3a9c99aceb1fd55e64e1f23921f8e9ef2541f029 。
+黄冈市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新更新），点击查询：https://github.com/jffisher/azeuji/commit/704e7332905d77d8cd576b4cc31e12e417c5f01a 。
+黄山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/gini1981/kvcjwd/commit/6b89e4e8655db65491f33377ed38cf03bf7b6e47 。
+黄石市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一升级），点击查询：https://github.com/plantil/qaflqw/commit/22bae83c2ba319faadd7fbcc41d59ea455610844 。
+惠东市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网上线），点击查询：https://github.com/ssquik/mqtlvd/commit/5e0ea099bb64aaa04fd047980d9579ec3c0710ad 。
+惠州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网升级），点击查询：https://github.com/rauloney/thkggd/commit/514e96129bb0d267f34fb886151b6ba45fe6eaee 。
+霍邱市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新公布），点击查询：https://github.com/eikrizka/tkmnnz/commit/83ef1c0018204dc4e32f73ab665f97beb44649d8 。
+吉安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网推出），点击查询：https://github.com/haifleiss/iltwpj/commit/f0ffc2a949799d12f5e7e483caaa11c486f36335 。
+吉林市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/kardinki/zmqpgx/commit/d00bfcb32cc761d97afea4d81b2df5596b3086ad 。
+济南市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网更新），点击查询：https://github.com/cometope/pvoovu/commit/010eaffb3f08690fe34f529e621e922ace8d5769 。
+济宁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一公布），点击查询：https://github.com/emilledar/djmzcc/commit/beae3356a9db281ba1445c83518674fb456ed413 。
+济源市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式上线），点击查询：https://github.com/tlarshi/fhfjhf/commit/e44d4ebd2a54949a811100302006e65348ba2cf0 。
+佳木斯市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一推出），点击查询：https://github.com/bone227/yiluru/commit/5e55feda1cd7e52338f57a7a564eb30389ea59d7 。
+嘉善市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新推出），点击查询：https://github.com/msapaton/mcqcla/commit/a6d526ff952965492e3a42cf6290bd53fbc79b9d 。
+嘉兴市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/pperssto/yucsfe/commit/e8179b4df155a9964ad1cabf84149261ed2606fb 。
+嘉峪关市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/hydiyez/otjsrx/commit/6572a620ff2ffd9a711db0a9b66df119b830f932 。
+建湖市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式更新），点击查询：https://github.com/cwbutanes/jutmms/commit/2d703dfff3b81999148917050b44ed31f328a62e 。
+江门市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式升级），点击查询：https://github.com/katglice/jyahcr/commit/bc8baca4dbe1a3a5875f4f7ed785d6c3f403cd18 。
+江阴市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新更新），点击查询：https://github.com/vkovari/ulbhhj/commit/b136dc97f23e181a651934c0e26e151a9765cfc4 。
+焦作市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新升级），点击查询：https://github.com/liteaboy/thksog/commit/97dd900b1ed9585c3b8a20d3ccb0a6fc72cbcce7 。
+揭阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式公布），点击查询：https://github.com/bhooving/gzvpbg/commit/13eec56b80a5f95bf7e4695fbcb1b34bdfd61151 。
+金华市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网上线），点击查询：https://github.com/jffisher/azeuji/commit/850d080395d60e598b7826dd5ef8053f9761d53b 。
+晋江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新升级），点击查询：https://github.com/gini1981/kvcjwd/commit/bad4564cfea06fd4ed7c81c3e8d432ec3b0e6d6c 。
+锦州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新升级），点击查询：https://github.com/plantil/qaflqw/commit/2a588ae6ca32e39c5aef2354d56fb9b45d97caf7 。
+景德镇市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新上线），点击查询：https://github.com/ssquik/mqtlvd/commit/f8a24772abdd3f226d3857c6713121fd26d8cf20 。
+靖江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一公布），点击查询：https://github.com/rauloney/thkggd/commit/d130a74a290c05a69446a083cfd7d9879c58dad0 。
+荆门市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式公布），点击查询：https://github.com/eikrizka/tkmnnz/commit/4dfe66f103abdf0eeaf5cf1dabfb414d0515f8e8 。
+荆州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/haifleiss/iltwpj/commit/6dbac7df5d31907795581e7b05f52416fac39524 。
+九江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新更新），点击查询：https://github.com/kardinki/zmqpgx/commit/bf3bb46f206125d945c9624768f2dd067c7ff831 。
+喀什市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式公布），点击查询：https://github.com/cometope/pvoovu/commit/0b7514eff28945696d2f71cc285e5c12950a3fc6 。
+开封市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一推出），点击查询：https://github.com/emilledar/djmzcc/commit/f39f1ea894782dcc28573ddedc9b8f43d04dd23b 。
+克拉玛市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一更新），点击查询：https://github.com/tlarshi/fhfjhf/commit/ebd738cd17ba023f9f829759f780ee83f490d581 。
+垦利市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新推出），点击查询：https://github.com/bone227/yiluru/commit/61335747411ccafc766d5d4b655aa5ef6ecd4bb6 。
+昆明市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一推出），点击查询：https://github.com/msapaton/mcqcla/commit/695f6b2ef8dc5824f9dc9ae776cbf92f3dc62a33 。
+昆山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式推出），点击查询：https://github.com/pperssto/yucsfe/commit/e4bae354dd85a50776a63e4c1412e1a504cbe29c 。
+拉萨市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新推出），点击查询：https://github.com/hydiyez/otjsrx/commit/9ec64056f8701623150b19902dbf26d64ce9edf5 。
+来宾市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新更新），点击查询：https://github.com/cwbutanes/jutmms/commit/9c574006694caf8076ac4b6c289526f4fc1f2bc3 。
+莱芜市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/katglice/jyahcr/commit/ae733ecdefd46651106fe755136827215b35e848 。
+兰州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新公布），点击查询：https://github.com/vkovari/ulbhhj/commit/deea4e108b67df6635b64048db9fab00d19cca69 。
+廊坊市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/liteaboy/thksog/commit/8e78d63c3df9acaefe709466df559a94be6ce1bb 。
+乐清市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网推出），点击查询：https://github.com/bhooving/gzvpbg/commit/63dffb39e22052b97db2b2ef478b13e73b65762c 。
+乐山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一上线），点击查询：https://github.com/jffisher/azeuji/commit/b542834e8d9582e9b28c42c0dbb0d7498cbfe579 。
+丽水市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式更新），点击查询：https://github.com/gini1981/kvcjwd/commit/ce51e432792d137f56d2aec40e181d0f0eec7c50 。
+连云港市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一升级），点击查询：https://github.com/plantil/qaflqw/commit/ec4ba0b4f15b453990219d9d0fa3d16c54d07796 。
+凉山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新公布），点击查询：https://github.com/ssquik/mqtlvd/commit/539cf720006faba776e22d90a919fb2d65da06f5 。
+聊城市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/rauloney/thkggd/commit/2595fb64a459ceb54d81dc55f3340ed13620fb58 。
+辽阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新推出），点击查询：https://github.com/eikrizka/tkmnnz/commit/a786ca209c2f034f030531d0b1282b95e857d53b 。
+临汾市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新升级），点击查询：https://github.com/haifleiss/iltwpj/commit/5e7a90730da947db84427d45ec816174a659ea09 。
+临沂市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网升级），点击查询：https://github.com/kardinki/zmqpgx/commit/6eb1dd4c3d17f32a28b4793ced453a898b0f1a9d 。
+六安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新升级），点击查询：https://github.com/cometope/pvoovu/commit/3cde3aeafcef6b2b2e26b2864037002575be054c 。
+柳州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/emilledar/djmzcc/commit/bec1ea8865ea5937e1ce5677f48eea1eb9b67dbc 。
+龙岩市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新更新），点击查询：https://github.com/tlarshi/fhfjhf/commit/f56c3746e57993a9f13b7cb6e6c75f86cbe49804 。
+娄底市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新上线），点击查询：https://github.com/bone227/yiluru/commit/149514406497dfcb1097696d14bcea6e6f4b6fcc 。
+洛阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一推出），点击查询：https://github.com/msapaton/mcqcla/commit/522836a4c0c1dae80889c39dc6758392e5a5f0eb 。
+马鞍山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新上线），点击查询：https://github.com/msapaton/mcqcla/commit/753e59a63e659a184868d40977b5756cecb166f5 。
+茂名市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一推出），点击查询：https://github.com/pperssto/yucsfe/commit/90bde87d6b8c67050a8a60361e6dba1435771a93 。
+眉山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新上线），点击查询：https://github.com/hydiyez/otjsrx/commit/bf47ba671e79c77463152e412f12c50345b5e3ef 。
+梅州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网上线），点击查询：https://github.com/cwbutanes/jutmms/commit/b0f650ce4bd2d1a110c3a4b9952fb799999888b6 。
+绵阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新升级），点击查询：https://github.com/katglice/jyahcr/commit/9c454565e4d40fb9f7464a7398818c7ceae3b30a 。
+明港市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新更新），点击查询：https://github.com/vkovari/ulbhhj/commit/48b17b93e53f96722c9c4371f03f363605d285f2 。
+牡丹江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新推出），点击查询：https://github.com/liteaboy/thksog/commit/6e72922c4a859e74e370e155f765999582bd0d0e 。
+南安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/bhooving/gzvpbg/commit/27609a3d38a6c6edd9df9f83402a954cf145b648 。
+南昌市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网更新），点击查询：https://github.com/jffisher/azeuji/commit/25ba3691d46a042c3f3512cfe0de3f0ef0f40ea2 。
+南充市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/gini1981/kvcjwd/commit/f44770f7ea69fa7dac0a5788921a8ab85afa51b7 。
+南京市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/plantil/qaflqw/commit/23b0a4d4c4173e0d9df783060426966cf7a73f05 。
+南宁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/ssquik/mqtlvd/commit/961549fd5b395c9e923007efb86f036fbad04d76 。
+南平市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新推出），点击查询：https://github.com/rauloney/thkggd/commit/2bdba14e5b475ebf28b9f05c425a1f304b2aebad 。
+南通市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一更新），点击查询：https://github.com/eikrizka/tkmnnz/commit/27c58834959fc12fcbab1d8aab013477d97c55e7 。
+南阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新升级），点击查询：https://github.com/haifleiss/iltwpj/commit/9013d798f50bc455699b8ae59997e8d41d0f0373 。
+内江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一更新），点击查询：https://github.com/kardinki/zmqpgx/commit/c8ba78ee1ec0dc3b2737dff0950217c964f0f641 。
+宁波市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式升级），点击查询：https://github.com/cometope/pvoovu/commit/da95f70cf021016613a26da9594930ad2df0385a 。
+宁德市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新推出），点击查询：https://github.com/emilledar/djmzcc/commit/cafb084f45ef21f50904b6a86daec99ece54a6a4 。
+宁国市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式上线），点击查询：https://github.com/tlarshi/fhfjhf/commit/5f9b523a6bfef427ca43b6aecf51fc7d77c3b0d2 。
+盘锦市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/bone227/yiluru/commit/44928e8bb53d156a38fae69ff63e0a5f781a0f25 。
+攀枝花市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网上线），点击查询：https://github.com/msapaton/mcqcla/commit/d7a6c837e27fa3ab4f08407c43aeaddb223f6306 。
+平顶山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新升级），点击查询：https://github.com/pperssto/yucsfe/commit/19aa774b9b8ee7fdc52ef40b7ccd07a51b070672 。
+萍乡市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新升级），点击查询：https://github.com/hydiyez/otjsrx/commit/1dd8bf56341a6d2e351e08a40bb3ab7bea17c852 。
+莆田市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网上线），点击查询：https://github.com/cwbutanes/jutmms/commit/10cafe16a26533f5370b2e13e12c4da881a20788 。
+启东市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新升级），点击查询：https://github.com/katglice/jyahcr/commit/029bfbaa2fb78032c7e13ecb7d5e83567da4f325 。
+齐齐哈尔市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新上线），点击查询：https://github.com/vkovari/ulbhhj/commit/148001bffe50038af3d8da301d91ca587caea0b0 。
+潜江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网公布），点击查询：https://github.com/liteaboy/thksog/commit/04455d3890d0b8495db4763c565b834d300daf0d 。
+秦皇岛市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/bhooving/gzvpbg/commit/d5eb3193732b9dc21d4b9ea6f72df6c9ed1e4329 。
+钦州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网公布），点击查询：https://github.com/jffisher/azeuji/commit/a5d99205a87b3dbf29c16792ec1a372c6ed00251 。
+青岛市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新上线），点击查询：https://github.com/gini1981/kvcjwd/commit/b99ff34425d500b09a64f291718f8c3331f1e326 。
+清远市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新推出），点击查询：https://github.com/plantil/qaflqw/commit/ab701605841820a4b9d4cc7e7751a01183c52aee 。
+曲靖市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/ssquik/mqtlvd/commit/abc0ba58a75c04df5d6e08ea6d3d46b036392b02 。
+泉州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式推出），点击查询：https://github.com/rauloney/thkggd/commit/11eccb54cd36f6f9279323d603504231ba54d8e0 。
+日照市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网更新），点击查询：https://github.com/eikrizka/tkmnnz/commit/8c2a9ed27259d3ba732055ea6ebe4fe5d1c7c67a 。
+如东市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式更新），点击查询：https://github.com/haifleiss/iltwpj/commit/a0e97644ac479b39b4f1e069cf1a3c37ca1450f4 。
+如皋市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式更新），点击查询：https://github.com/kardinki/zmqpgx/commit/173f943cadb279ab6567d708888d099dac4b50d7 。
+瑞安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一公布），点击查询：https://github.com/cometope/pvoovu/commit/2461e8169e6ed210e74787036adc71366a676944 。
+三门峡市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新上线），点击查询：https://github.com/emilledar/djmzcc/commit/a1cb6674bd3de0d603a0fb5405b0d965bd714fd5 。
+三明市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新上线），点击查询：https://github.com/tlarshi/fhfjhf/commit/bfd4e203f93c567296db9071e3ef605c63303a5a 。
+三亚市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/bone227/yiluru/commit/d01f17a192e17006747e9584597632e9f29c4a60 。
+汕头市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网公布），点击查询：https://github.com/msapaton/mcqcla/commit/47eb90fdc71d8af018aec40e6b9935757904c4b1 。
+汕尾市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式公布），点击查询：https://github.com/pperssto/yucsfe/commit/984d4adc4f11c0cc7ed6c40e217e2f6ddac6d040 。
+上海市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一更新），点击查询：https://github.com/hydiyez/otjsrx/commit/5d716eb9a74391a4871bd931684b7db647dada7b 。
+商丘市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新升级），点击查询：https://github.com/cwbutanes/jutmms/commit/80d9a3a3f22e77fb16672b9a18ae0a4c23e191ac 。
+上饶市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式公布），点击查询：https://github.com/katglice/jyahcr/commit/13e0bd522357e4674040e67780df01f988ecb64b 。
+韶关市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新更新），点击查询：https://github.com/vkovari/ulbhhj/commit/7caa8762caede49e387e908a02a2391841794c69 。
+绍兴市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新公布），点击查询：https://github.com/liteaboy/thksog/commit/cedebea8507f04aa33756c50862862540740ef9a 。
+邵阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/bhooving/gzvpbg/commit/6fed3be55ca96e80cbca7dddb69f5ff4af65bd8f 。
+神农架市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新更新），点击查询：https://github.com/jffisher/azeuji/commit/4490018062caeb8598edbb9cbc6cf6da93c4e6cf 。
+沈阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新推出），点击查询：https://github.com/gini1981/kvcjwd/commit/f2d5bbc21a259ce92a136aaef7aab59aabdf57a5 。
+深圳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新升级），点击查询：https://github.com/plantil/qaflqw/commit/5f5c472f979f7ef8416e68cdf661848d56d44af9 。
+石河子市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新推出），点击查询：https://github.com/ssquik/mqtlvd/commit/c55cd1d600bf87ec78b3395fa9f1d0cc4c3fbc29 。
+石家庄市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式更新），点击查询：https://github.com/rauloney/thkggd/commit/2df7c0e848e012f8524df81c7750cc935e8a4d90 。
+石狮市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网升级），点击查询：https://github.com/eikrizka/tkmnnz/commit/69104a40688db102cc7d444cd5984e76cca038df 。
+十堰市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一推出），点击查询：https://github.com/haifleiss/iltwpj/commit/9ce7113e145bd3b3d3021a570de497f2776331f7 。
+寿光市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网公布），点击查询：https://github.com/kardinki/zmqpgx/commit/d57f5f1b8555b10840aaa215bc0aa9e1f1229aef 。
+顺德市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新上线），点击查询：https://github.com/cometope/pvoovu/commit/d7abe09079eb3d618406097d06aabae7a95a6042 。
+四平市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/emilledar/djmzcc/commit/2c4636804099d6e54e836c468bd610f18218abf7 。
+宿迁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新公布），点击查询：https://github.com/tlarshi/fhfjhf/commit/20b5c0d42f66c7f0917a6f5e3b71f123ca22b78f 。
+苏州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网更新），点击查询：https://github.com/bone227/yiluru/commit/16574bf131cc438cfe25a03a2398f14750d1cdad 。
+宿州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新升级），点击查询：https://github.com/msapaton/mcqcla/commit/95b55cd9597c033fe959f084618f8a23f4ccf64f 。
+遂宁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新推出），点击查询：https://github.com/pperssto/yucsfe/commit/28714eb86d7c3116148b56d76a93b0dd13173f52 。
+随州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/hydiyez/otjsrx/commit/5457af4b13c4037618c89925de7b7fe135fdd03b 。
+泰安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新推出），点击查询：https://github.com/cwbutanes/jutmms/commit/0c9a5a5f129f0198a134d46e820741543e9f9dc3 。
+台山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/katglice/jyahcr/commit/1f653607bf6e52ed337385354fa514b669add50f 。
+泰兴市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新上线），点击查询：https://github.com/vkovari/ulbhhj/commit/07bb84d2bf84a916990e8f59200079f84f199d41 。
+太原市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一升级），点击查询：https://github.com/liteaboy/thksog/commit/9f7184190c808ff25aed094dcd40f1e42267585f 。
+泰州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新升级），点击查询：https://github.com/bhooving/gzvpbg/commit/1cc47b8c83a44d6c1942d9904f03cfa75d033bdb 。
+唐山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/jffisher/azeuji/commit/726dbca117726743c073cb94fd8c102c97f9df22 。
+天长市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网升级），点击查询：https://github.com/gini1981/kvcjwd/commit/a64ce751ff127dfabbfdd1f79be3d9e4d3fd9a4b 。
+天津市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新更新），点击查询：https://github.com/plantil/qaflqw/commit/39ef55d4a1ff75f048fa378992916c1a761767c2 。
+天门市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新公布），点击查询：https://github.com/ssquik/mqtlvd/commit/2ed103bd99e78ed8e4b5d842415a20a0235085ea 。
+天水市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网升级），点击查询：https://github.com/rauloney/thkggd/commit/70a68b52b7e150006acb66314b31524b186a2a8f 。
+铁岭市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式上线），点击查询：https://github.com/eikrizka/tkmnnz/commit/b24eae6d1a5f33ee48e82d36c59babb7ccb3a6ba 。
+桐城市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/haifleiss/iltwpj/commit/a3198bcd46259036509f5ba5627e5c1f79ed1e01 。
+铜川市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式上线），点击查询：https://github.com/kardinki/zmqpgx/commit/fb8968cf745685e535f87f429759b4a3a5b425b6 。
+铜陵市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式升级），点击查询：https://github.com/cometope/pvoovu/commit/07321392f981c6b32f8aa13a58054078bca16851 。
+桐乡市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/emilledar/djmzcc/commit/32155f72999e3610f0134a38c19004fac46f8c27 。
+瓦房店市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新推出），点击查询：https://github.com/tlarshi/fhfjhf/commit/5b1f36cac9536af507b602dc3e0d2fa80cbcad2c 。
+潍坊市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式公布），点击查询：https://github.com/bone227/yiluru/commit/18bbf8cef71ad3c99e5bac1eab019a42b778e926 。
+威海市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网推出），点击查询：https://github.com/msapaton/mcqcla/commit/8a01f5aaa051649660a898e576bd9c250e91dc7d 。
+温岭市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/pperssto/yucsfe/commit/2f394e6c5c30fe7b914834ddc020ff81abd1e0ed 。
+温州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网升级），点击查询：https://github.com/hydiyez/otjsrx/commit/284c55ffb3cc8ee8326c4f3eb4707539275b3e4b 。
+武汉市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式升级），点击查询：https://github.com/cwbutanes/jutmms/commit/8006800f9f4cdb42f8f3eb773ec830a3294f1b62 。
+芜湖市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新升级），点击查询：https://github.com/katglice/jyahcr/commit/98da328382e7edb5817f2ba455d1efdfbb2595d0 。
+乌鲁木齐市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一公布），点击查询：https://github.com/vkovari/ulbhhj/commit/bf52633008c2ab673a64b2b9719fa2a49c538878 。
+无锡市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新更新），点击查询：https://github.com/liteaboy/thksog/commit/5013d5e8bab7cc62fcb02414a11d1669cb7c9aa6 。
+武夷山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新升级），点击查询：https://github.com/bhooving/gzvpbg/commit/fa3683b2d68e23eee8e8972cc7cadde9b209cd03 。
+梧州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一升级），点击查询：https://github.com/jffisher/azeuji/commit/62eba2202b81d25ac714b74e9a0f653f17a9b49a 。
+西安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新公布），点击查询：https://github.com/gini1981/kvcjwd/commit/456c4b28a19229d65fa4f6aef136c0baa81f9f76 。
+西宁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一上线），点击查询：https://github.com/plantil/qaflqw/commit/5722c967ff2076b61eb1a95a47db2172785ea3f3 。
+厦门市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新推出），点击查询：https://github.com/ssquik/mqtlvd/commit/2e67afd981fcea6dc6c5469014b3336679968c19 。
+咸宁市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式升级），点击查询：https://github.com/rauloney/thkggd/commit/f4f3b26f85cd6d86aa3ef357b6f2b239e7de9add 。
+仙桃市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一升级），点击查询：https://github.com/eikrizka/tkmnnz/commit/74b38c7cd0a0b157afa58864806296757a1242c6 。
+咸阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式升级），点击查询：https://github.com/haifleiss/iltwpj/commit/0421a6afe2a1ac2f94b0fe0c8ffc7b406ed6408f 。
+襄樊市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一推出），点击查询：https://github.com/kardinki/zmqpgx/commit/55f95c977953f3ab5750e48a088a7642ed5714d6 。
+象山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式推出），点击查询：https://github.com/cometope/pvoovu/commit/25427e6aada94d37b84c8baa3ffb3ca332972c5a 。
+湘潭市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网更新），点击查询：https://github.com/emilledar/djmzcc/commit/8766fcdcd7a95a80d97e521ba191750043a7ca81 。
+湘西市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网推出），点击查询：https://github.com/tlarshi/fhfjhf/commit/bf2b705a830169aa923f5ccfc6c5b85d787dc003 。
+襄阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新更新），点击查询：https://github.com/bone227/yiluru/commit/fdab07b8c457e54eaecd9337b1eef65e6aa51035 。
+孝感市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网更新），点击查询：https://github.com/msapaton/mcqcla/commit/ef68806f455211d96f35dc02a3a6ce5379b6a663 。
+萧山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一推出），点击查询：https://github.com/pperssto/yucsfe/commit/6e8cfb6f9f72b5ff245e0f7384660881090f1639 。
+新乡市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式上线），点击查询：https://github.com/hydiyez/otjsrx/commit/46c2907a926ceeac7d04c0bdc0d641aee66ed7ba 。
+信阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网公布），点击查询：https://github.com/cwbutanes/jutmms/commit/423ed78bb8256d8579a11b3a310782edaddc0a41 。
+新沂市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新推出），点击查询：https://github.com/katglice/jyahcr/commit/32511c7713bf958a1a85d6e0c3239a9c13a25c41 。
+新余市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一推出），点击查询：https://github.com/vkovari/ulbhhj/commit/3005de934a4a7b0c789bc9b5b9b6793ecd2a5f4f 。
+兴化市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新推出），点击查询：https://github.com/liteaboy/thksog/commit/33c08ab9e6dddd5297c7b23ba05e41ce684f3cf1 。
+邢台市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新上线），点击查询：https://github.com/bhooving/gzvpbg/commit/6b9cde04b0aa1c005297b6f0917b59b526acd468 。
+许昌市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新上线），点击查询：https://github.com/jffisher/azeuji/commit/2dcce768b07062cb17e1688049fa0086b84a2634 。
+徐州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式更新），点击查询：https://github.com/gini1981/kvcjwd/commit/42c50efd57b4b96d8b435fa2352edf660187b7b6 。
+宣城市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新上线），点击查询：https://github.com/plantil/qaflqw/commit/595d605dc8cd6b7a1f667237bb4ed52aecab8a46 。
+雅安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/ssquik/mqtlvd/commit/237bd19d0e34d41ebca58ef5d5b8915d452d0ee5 。
+延安市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/rauloney/thkggd/commit/483d294c22357dcf4161808b6e0b3fd7b70849cd 。
+盐城市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一公布），点击查询：https://github.com/eikrizka/tkmnnz/commit/0ee11eaaab207ae4a7252171ab58477a950eaf7f 。
+烟台市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式升级），点击查询：https://github.com/haifleiss/iltwpj/commit/f1faaed6f68565b992b1e46803978679a899e024 。
+阳春市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/kardinki/zmqpgx/commit/f6c09d213ad1c1181bebf90e4a4228b62e67b35b 。
+阳江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新公布），点击查询：https://github.com/cometope/pvoovu/commit/68079cb63538be0a31e0963c454b6ae2a0920ecc 。
+阳泉市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新上线），点击查询：https://github.com/emilledar/djmzcc/commit/c69ecb4ea918d1f05651c5b4b0238caec7474be9 。
+扬中市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一上线），点击查询：https://github.com/tlarshi/fhfjhf/commit/f40fc714bfddf5fbc6b4274df3cd508b924878c4 。
+扬州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日正式升级），点击查询：https://github.com/bone227/yiluru/commit/1c0a85eceb34778760d40b2b2505ac1d2cd160fe 。
+宜宾市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网推出），点击查询：https://github.com/msapaton/mcqcla/commit/fe1eef240d1f812acfd8613598624b799e92dab4 。
+宜昌市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新推出），点击查询：https://github.com/pperssto/yucsfe/commit/58568b74641f034d6b64a5cf48483c0590b673b4 。
+宜春市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网公布），点击查询：https://github.com/hydiyez/otjsrx/commit/7c26eb79fd9c05a19672cef9a37c73fdf49193f0 。
+宜都市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新推出），点击查询：https://github.com/cwbutanes/jutmms/commit/9c8bc506e21002beb24e57dec419e6cd89288b81 。
+义乌市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一上线），点击查询：https://github.com/katglice/jyahcr/commit/a42cafa50b4f6b93b9bfdfbb2b9fce1a42280999 。
+宜兴市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式升级），点击查询：https://github.com/vkovari/ulbhhj/commit/55d2482e1963211a565f90b9b810cadc31664687 。
+益阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新升级），点击查询：https://github.com/liteaboy/thksog/commit/dfbfb0d9b28ab13b03ec0d51fca5cbfa7a55847b 。
+银川市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一升级），点击查询：https://github.com/bhooving/gzvpbg/commit/88593efd5f8fb57fe6bb1d201930a37314a68cf1 。
+营口市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网升级），点击查询：https://github.com/jffisher/azeuji/commit/461a4a958fabdcc135b3cf243b6accbd3a3588cf 。
+鹰潭市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一推出），点击查询：https://github.com/gini1981/kvcjwd/commit/1f6e420b2a7d8f925aab43b1f27ed6e3aa6cd2c4 。
+永新市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新公布），点击查询：https://github.com/plantil/qaflqw/commit/57623088149a56c77f454110f8e9d777e5144306 。
+永州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一升级），点击查询：https://github.com/ssquik/mqtlvd/commit/daebef30e3aea751d5c5f87ca01abe5357e6ebcb 。
+榆林市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新推出），点击查询：https://github.com/rauloney/thkggd/commit/ee76f7d9d9d39c00dabf4ff56e4c6e5a87beffea 。
+玉林市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式升级），点击查询：https://github.com/eikrizka/tkmnnz/commit/9b4f065e945e6a5c48c6cebe724224f6bff23e3b 。
+玉溪市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新推出），点击查询：https://github.com/haifleiss/iltwpj/commit/9b396745d1c781c1d942757d108aeb5327131444 。
+余姚市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一推出），点击查询：https://github.com/kardinki/zmqpgx/commit/e9bb16a3adbbaa88bc3290e7dc1fc74a4b5b0033 。
+禹州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网上线），点击查询：https://github.com/cometope/pvoovu/commit/da41e78efa9ea3d7b83dd5fa5316205963c5e8e5 。
+岳阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新更新），点击查询：https://github.com/emilledar/djmzcc/commit/d8e62cb0e18aec3df38e85256db06e11a2203400 。
+云浮市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网推出），点击查询：https://github.com/tlarshi/fhfjhf/commit/28c9862f38df21adb1526a976838e13eb15f654a 。
+枣庄市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/bone227/yiluru/commit/c826e9075b93d68bc5a982a92db2e2bb1fb98e64 。
+湛江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/msapaton/mcqcla/commit/3bdb7d962376f4cd64ac727a4850861d9a722e87 。
+张家界市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一升级），点击查询：https://github.com/pperssto/yucsfe/commit/4af87cf5e92f648e69effeb8181f1a068230fb72 。
+张家口市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日最新推出），点击查询：https://github.com/hydiyez/otjsrx/commit/b366a838048526bbc76a27bc2bd4c6ff53f71347 。
+章丘市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一升级），点击查询：https://github.com/cwbutanes/jutmms/commit/9b46e8bfceeb994d5e85de2cc4ca5e577a8042c5 。
+漳州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一推出），点击查询：https://github.com/katglice/jyahcr/commit/229b5edb310ab1d74d60aca42dbedbf6b00ff42c 。
+肇庆市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一上线），点击查询：https://github.com/vkovari/ulbhhj/commit/d7e6d0c96d0ac91f23a5e02cf342a6eda0a42e5a 。
+镇江市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一上线），点击查询：https://github.com/liteaboy/thksog/commit/3a13154556a013ea7b687b41438031cea200db33 。
+郑州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新上线），点击查询：https://github.com/bhooving/gzvpbg/commit/ffe82a763fe3aec1d76ae37f7b185b7777936aea 。
+重庆市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网公布），点击查询：https://github.com/jffisher/azeuji/commit/1ec4a4c068d15b8ae7cde586626b3514d6d2b0de 。
+中山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一上线），点击查询：https://github.com/gini1981/kvcjwd/commit/9121908b475d443a5d0ce2d7c95952e2f9c5d74e 。
+周口市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网更新），点击查询：https://github.com/plantil/qaflqw/commit/ae8942f9b1e2c9712991591a471616151bb5e31e 。
+舟山市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网推出），点击查询：https://github.com/ssquik/mqtlvd/commit/512a16cda10f937b9759c1ef85514184d627e0bd 。
+诸城市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式上线），点击查询：https://github.com/rauloney/thkggd/commit/7b74f56ad8c669afd2e5d9ae545ef334f06ac656 。
+珠海市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日统一更新），点击查询：https://github.com/eikrizka/tkmnnz/commit/823817005528d1434a50f2a75f0af538d46848fa 。
+株洲市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日正式公布），点击查询：https://github.com/haifleiss/iltwpj/commit/62343769acd0f9b057ee061c68371020abc26259 。
+诸暨市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日正式公布），点击查询：https://github.com/kardinki/zmqpgx/commit/e8cfe019919ac7416132a1dbdcd62f7be7692d1d 。
+庄河市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新推出），点击查询：https://github.com/cometope/pvoovu/commit/1af58c257cd5c05d064b70154faecf9d509e8888 。
+自贡市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新公布），点击查询：https://github.com/emilledar/djmzcc/commit/570d3c07b9cff9690cd425edd2cd0d5c87da58d3 。
+资阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日官网公布），点击查询：https://github.com/tlarshi/fhfjhf/commit/ff97ce289584565c5f002834776a57d972cc49da 。
+遵义市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日统一升级），点击查询：https://github.com/bone227/yiluru/commit/bb2345ce0007a93e965a3431d6b588e45121caf8 。
+漯河市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一推出），点击查询：https://github.com/msapaton/mcqcla/commit/1cc2327b911ca1fa02ae63ac2015b73f4d294cfb 。
+鄢陵市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日最新上线），点击查询：https://github.com/pperssto/yucsfe/commit/1cb66a9f39edbd35996b7b0b8bcaeddea1a511f6 。
+沭阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日统一公布），点击查询：https://github.com/hydiyez/otjsrx/commit/e641316961894252cebc038282bc4d37397d1ddf 。
+濮阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日最新更新），点击查询：https://github.com/cwbutanes/jutmms/commit/9d0e1245ef6fecfab753e40cccc0aa8664605864 。
+溧阳市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日官网公布），点击查询：https://github.com/katglice/jyahcr/commit/b6e07f540636ef1e8990f694b9aa27a7c18eac0a 。
+泸州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0-9 9 9-6 0 3 0   （2026年07月24日全新上线），点击查询：https://github.com/vkovari/ulbhhj/commit/865979fac47f823cc6b723821d011354c5ca5235 。
+衢州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日全新更新），点击查询：https://github.com/liteaboy/thksog/commit/002f65bcff0e6d8abaedf350763f227ae68031a4 。
+亳州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 9 9 9 6 0 3 0    （2026年07月24日全新升级），点击查询：https://github.com/bhooving/gzvpbg/commit/17a8b5d835d5a8190c789671a8159de378b7fbcb 。
+邳州市剑芯智选（Jianxin Smart）智能门锁售后服务电话：4 0 0 - 9 9 9 - 6 0 3 0 （2026年07月24日官网上线），点击查询：https://github.com/jffisher/azeuji/commit/c3d280f339b8a65b18ee8897da3e9f2e766402d4 。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月24日22时13分44秒*
+*数据来源：新浪财经、公开媒体报道*
